@@ -1,1 +1,8 @@
 ![signin](https://github.com/Bukhariu33/payment/assets/101917043/561b5cf1-a13d-409c-ba3e-5014c47e286c)
+![signuup](https://github.com/Bukhariu33/payment/assets/101917043/d38a05bb-c69a-44bc-bf5f-d91b91907933)
+![WhatsApp Image 2024-05-01 at 2 49 44 PM](https://github.com/Bukhariu33/payment/assets/101917043/af155730-272f-4105-bf8a-6ea56eb64082)
+![WhatsApp Image 2024-05-02 at 4 48 36 PM](https://github.com/Bukhariu33/payment/assets/101917043/0bec1cd1-517c-4582-bba8-9959d2272d9b)
+![send 1](https://github.com/Bukhariu33/payment/assets/101917043/b72fe200-2ea3-4ea6-90fa-c20e0b9372f8)
+![recieve 1](https://github.com/Bukhariu33/payment/assets/101917043/98c57695-ab1d-4979-b486-ee76f12a9c55)
+![description](https://github.com/Bukhariu33/payment/assets/101917043/67a0f255-2087-4992-9b70-a7c536dbf86d)
+![receieve detail](https://github.com/Bukhariu33/payment/assets/101917043/a3f7cb17-a02b-4988-84f3-475efdd30555)
